@@ -1,9 +1,10 @@
 # _**Leslie Lopez**_  
 ---
-lesliel2935@hstat.org  
+## lesliel2935@hstat.org  
 ## Hstat  
 ### **Bio**
  * I am from Mexico and have a big family
+    * Mom,Dad,Sister,2 Brothers,Dog,Cat, and 2 Fishes 
  * I am currently 15 years old and my birthday is coming up on November 24th,2018  
 ### Schedule:
 1. Art
